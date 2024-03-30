@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently studying **Ecole42**
 
-- 🔭 I’m about to graduate **Erciyes University**
+- 🔭 I’m about to graduate from **Erciyes University**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
